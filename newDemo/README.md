@@ -1,1 +1,1 @@
-![image](http://en.wikipedia.org/wiki/Main_Page#mediaviewer/File:Summer_evening_at_Oil_on_canvas_-_P.S._Kr%C3%B8yer_-_Google_Cultural_Institute.jpg)
+![summer](http://upload.wikimedia.org/wikipedia/commons/thumb/c/c8/Summer_evening_at_Oil_on_canvas_-_P.S._Kr%C3%B8yer_-_Google_Cultural_Institute.jpg/640px-Summer_evening_at_Oil_on_canvas_-_P.S._Kr%C3%B8yer_-_Google_Cultural_Institute.jpg)
