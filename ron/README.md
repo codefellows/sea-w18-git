@@ -1,1 +1,1 @@
-![image](http://www.hdwallpapersinn.com/wp-content/uploads/2014/08/cute-cat-wallpapers.jpg)
+![image](http://upload.wikimedia.org/wikipedia/en/8/81/Cat_in_a_tree.jpg)
