@@ -1,1 +1,1 @@
-![image](http://placekitten.com/200/100)
+![image](http://www.hdwallpapersinn.com/wp-content/uploads/2014/08/cute-cat-wallpapers.jpg)
