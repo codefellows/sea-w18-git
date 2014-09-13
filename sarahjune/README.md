@@ -1,0 +1,1 @@
+![corgi](http://www.papermag.com/uploaded_images/712895881.gif)
