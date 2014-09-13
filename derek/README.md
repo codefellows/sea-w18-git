@@ -1,3 +1,3 @@
 # MOAR RWBY 
 
-![Ruby](http://i1.pixiv.net/img79/img/abcd1234ken/37178695_m.jpg)
+![Ruby](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSjUHNZeZCBuutolCs0FHMtY6H0Z6x346muI8qWCJG7rj0pkkjL)
