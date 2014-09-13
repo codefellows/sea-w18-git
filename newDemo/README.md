@@ -1,1 +1,1 @@
-![image](http://placekitten.com/200/100)
+![image](http://en.wikipedia.org/wiki/Main_Page#mediaviewer/File:Oscar_Pistorius_in_Warsaw_(cropped).jpg)
